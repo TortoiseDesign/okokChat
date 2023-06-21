@@ -2,7 +2,7 @@ Hi, thank you for use my script, I'm very grateful!
 
 If you need help contact me on discord: Tortoise Design#9228
 
-Discord server: https://discord.gg/3GFKFPaxK3
+Discord server: https://discord.gg/ezGs7RY6bt
 
 1. Disable the chat resource you're using at the moment
 
